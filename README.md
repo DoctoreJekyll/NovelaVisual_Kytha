@@ -1,2 +1,0 @@
-# NovelaVisual_Kytha
- 
